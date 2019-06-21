@@ -74,7 +74,7 @@ was placed again on his own back. And afterwards he caused
 the ghost to be absolved and masses to be sung for him and he was 
 eased. 
 
-1 So in No. II a ghost is said to appear “in specie dumi” (as I read it), i.e. of a thorn bush. In several of these stories the ghosts are liable to many changes of form. — M.R.J.
+1. So in No. II a ghost is said to appear “in specie dumi” (as I read it), i.e. of a thorn bush. In several of these stories the ghosts are liable to many changes of form. — M.R.J.
 
 ## II. Concerning a wonderful encounter between a ghost and a living man in the time of King Richard II. 
 
@@ -95,19 +95,19 @@ ground from the horse upon which he was riding ; and he lay stretched
 upon the ground as it were in a swoon and lifeless, and he was 
 very frightened. Then, rising and strong in the faith, he fought 
 with him with his sword until he was weary; and it seemed to him 
-that he was striking a peat-stack; and he forbade him and conjured him m the name of God, saying, “ God forbid that you have 
+that he was striking a peat-stack; and he forbade him and conjured him in the name of God, saying, “God forbid that you have 
 power to hurt me on this occasion, but begone.” And again it 
 flew off with a horrible screaming as it were the space of the flight 
 of an arrow. And the third time it appeared to the tailor as he was 
 carrying the cross of his sword upon his breast for fear, and it met 
 him in the likeness of a dog with a chain on its neck. And when 
 he saw it the tailor, strong in the faith, thought within himself, 
-hat will become of me ? I will adjure him in the name of the 
+hat will become of me? I will adjure him in the name of the 
 Trinity and by the virtue of the blood of Christ from His five wounds 
 that he speak with me, and do me no wrong, but stand fast and 
 answer my questions and tell me his name and the cause of his 
 punishment and the remedy that belongs to it.” And he did so 
-And the spirit, panting terribly and groaning, said, “ Thus and 
+And the spirit, panting terribly and groaning, said, “Thus and 
 thus did I, and for thus doing I have been excommunicated . 1 Go 
 therefore to a certain priest and ask him to absolve me. And it 
 behoves me to have the full number of nine times twenty masses 
@@ -118,34 +118,10 @@ will tell you how you may be made whole, and in the mean time you
 need not fear the sight of a wood fire.2 Or otherwise your flesh 
 
 
-1 Great pains have been taken through- 
-out to conceal the name of the ghost. He 
-must have been a man of quality whose 
-relatives might have objected to stories 
-being told about him. — M.R.J.
+1. Great pains have been taken through- out to conceal the name of the ghost. He must have been a man of quality whose relatives might have objected to stories being told about him. — M.R.J.
 
-2 In the Danish tales something like 
-this is to be found. Kristensen *Sagn og 
-overtro* 1866, No. 585: After seeing a 
-phantom funeral “the man was wise 
-enough to go to the stove and look at the 
-fire before he saw (candle- or lamp-) light. 
-For when people see anything of the kind 
-they are sick if they cannot get at fire 
-before light.” Ibid., No. 371.: “He was 
-very sick when he caught sight of the 
-light.” The same in No. 369. In Part 
-II of the same (1888), No. 690: “When 
-you see anything supernatural, you 
-should peep over the door before going 
-into the house. You must see the light 
-before the light sees you.” Collection of 
-1883, No. 193: “When he came home, he 
-called to his wife to put out the light before he came in, but she did not and he 
-was so sick they thought he would have 
-died.” These examples are enough to 
-show that there was risk attached to 
-seeing light after a ghostly encounter. — M.R.J. 
+2. In the Danish tales something like this is to be found. Kristensen *Sagn og overtro* 1866, No. 585: After seeing a phantom funeral “the man was wise enough to go to the stove and look at the fire before he saw (candle- or lamp-) light. For when people see anything of the kind they are sick if they cannot get at fire before light.” Ibid., No. 371.: “He was very sick when he caught sight of the light.” The same in No. 369. In Part II of the same (1888), No. 690: “When you see anything supernatural, you should peep over the door before going into the house. You must see the light before the light sees you.” Collection of 1883, No. 193: “When he came home, he called to his wife to put out the light before he came in, but she did not and he was so sick they thought he would have died.” These examples are enough to show that there was risk attached to seeing light after a ghostly encounter. — M.R.J.
+
 
 
 shall rot and your skin shall dry up and shall fall off from you utterly 
@@ -181,26 +157,13 @@ another, and that other a third, to advise secretly concerning the
 
 
 
-1 This rather suggests that you might 
-be reckoned to have kept a mass if you 
-came only in time for the last gospel. — A.H.T. 
+1. This rather suggests that you might be reckoned to have kept a mass if you came only in time for the last gospel. — A.H.T.
 
-2 Defaming (*defamatio* or *diffamatio*) is 
-the formal accusation of crime which 
-renders a man liable to spiritual censure, 
-and puts him in a state of inf amici from 
-which he must free himself by compurgation or by establishing a suit against his 
-defamer in the spiritual court. The 
-*infamia* of a dead man (resting here on 
-his own acknowledgment) would place 
-him outside the privilege of Christian 
-burial and lead to the disinterment of his 
-remains. Cf. the posthumous defamation 
-and disinterment of Wycliffe for heresy. - A.H.T. 
+2. Defaming (*defamatio* or *diffamatio*) is the formal accusation of crime which renders a man liable to spiritual censure, and puts him in a state of inf amici from which he must free himself by compurgation or by establishing a suit against his defamer in the spiritual court. The *infamia* of a dead man (resting here on his own acknowledgment) would place him outside the privilege of Christian burial and lead to the disinterment of his remains. Cf. the posthumous defamation and disinterment of Wycliffe for heresy. - A.H.T.
 
-3 I suppose in order that the ghost 
-might not haunt the road in the interval 
-before the tailor’s return. — M.R.J. 
+
+3. I suppose in order that the ghost might not haunt the road in the interval before the tailor’s return. — M.R.J.
+
 
 
 absolution of this man . 1 And the tailor asked of him, “Sir, you 
@@ -235,59 +198,13 @@ were written words of salvation, namely Jesus of Nazareth, etc.,
 and he waited for the coming of the ghost. He came at length in 
 
 
-1 The reluctance of the priest at York 
-to absolve and the number of advisers 
-called in testify to the importance of the 
-case.— M.R.J.
+1. The reluctance of the priest at York to absolve and the number of advisers called in testify to the importance of the case.— M.R.J.
 
-2 The conduct of the officious neigh- 
-bour who insists upon being informed of 
-the tailor s assignation with the ghost and 
-then backs out of accompanying him is 
-amusing. — M.R.J.
+2. The conduct of the officious neigh- bour who insists upon being informed of the tailor s assignation with the ghost and then backs out of accompanying him is amusing. — M.R.J.
 
-3 Whether a circle enclosing a cross or 
-a circle drawn with a cross I do not know 
-M.R.J. 
-I think there can be no doubt that it 
-was a circle with a cross drawn inside it at 
-the points of which, where they meet the 
-circumference, the reliquaries (*monilia*) 
-were placed. I am not quite sure 
-whether the passage does not mean that 
-the names of the four gospels (i.e. the 
-evangelists) and other sacred words were 
-written in the quadrants of the circle. 
-The magic circle plays a great part in 
-a case of sorcery recorded in York Reg.
-Bainbridge and printed in *Archaeol. 
-Journal*, xvi. It was here drawn on a 
-huge sheet of parchment in a private 
-house by an ingenious person who induced a number of people to combine 
-with him m conjuring demons to reveal 
-the hiding-place of a treasure at Mixendale Head, near Halifax. There is no 
-mention of its being drawn with a cross 
-or of a cross inscribed in it; it was copied 
-from a conjuring book. It was inscribed 
-however, "cum carecteribus et nominibus aliusque signis supersticiosis”; and 
-one deponent, who arrived unexpectedly 
-while the performance was going on, saw 
-that the party “had a grete masse boke 
-opyn afore theyme, and wrote oute what 
-they wold”; cf. the “other sacred 
-words” which the present spirit ordered 
-his conjuror to bring with him. Are the 
-*monilia* necessarily reliquaries? I should 
-have thought that, in the present case, 
-they might rather be medallions on which 
-the *titulus triumphalis* was engraved, like 
-the *laminae* of lead inscribed with figures 
-of “Oberion,” “Storax,” and other 
-spirits which formed part of the Halifax 
-conjurors’ equipment. The text seems 
-to imply a figure of this kind: — A.H.T.
+3. Whether a circle enclosing a cross or a circle drawn with a cross I do not know M.R.J. I think there can be no doubt that it was a circle with a cross drawn inside it at the points of which, where they meet the circumference, the reliquaries (*monilia*) were placed. I am not quite sure whether the passage does not mean that the names of the four gospels (i.e. the evangelists) and other sacred words were written in the quadrants of the circle. The magic circle plays a great part in a case of sorcery recorded in York Reg. Bainbridge and printed in *Archaeol. Journal*, xvi. It was here drawn on a huge sheet of parchment in a private house by an ingenious person who induced a number of people to combine with him m conjuring demons to reveal the hiding-place of a treasure at Mixendale Head, near Halifax. There is no mention of its being drawn with a cross or of a cross inscribed in it; it was copied from a conjuring book. It was inscribed however, "cum carecteribus et nominibus aliusque signis supersticiosis”; and one deponent, who arrived unexpectedly while the performance was going on, saw that the party “had a grete masse boke opyn afore theyme, and wrote oute what they wold”; cf. the “other sacred words” which the present spirit ordered his conjuror to bring with him. Are the *monilia* necessarily reliquaries? I should have thought that, in the present case, they might rather be medallions on which the *titulus triumphalis* was engraved, like the *laminae* of lead inscribed with figures of “Oberion,” “Storax,” and other spirits which formed part of the Halifax conjurors’ equipment. The text seems to imply a figure of this kind: — A.H.T.
 
-    ![Diagram](aht-diagram.png)
+    ![Diagram](/aht-diagram.png)
 
 
 
@@ -315,19 +232,9 @@ soldier and was not of these parts, and he killed a woman great
 
 
 
-1 I think the allusion is to the pictures 
-of the Three Living and the Three Dead 
-so often found painted on church walls. 
-The Dead and Living are often represented as Kings.— M.R.J.
-One of the best examples (though only 
-the “Trois Vifs” remain) of this kind 
-of painting is over the north doorway at 
-Lutterworth, and there is a very good 
-example at Paston, Norfolk. — A.H.T.
+1. I think the allusion is to the pictures of the Three Living and the Three Dead so often found painted on church walls. The Dead and Living are often represented as Kings.— M.R.J. One of the best examples (though only the “Trois Vifs” remain) of this kind of painting is over the north doorway at Lutterworth, and there is a very good example at Paston, Norfolk. — A.H.T.
 
-2 The need of a prescription for healing 
-the tailor was due to the blow in the side 
-which the raven had given him. — M.R.J.
+2. The need of a prescription for healing the tailor was due to the blow in the side which the raven had given him. — M.R.J.
 
 with child and he will find no remedy before the day of judgment, 
 and you will see him in the form of a bullock without mouth or eyes 
@@ -365,23 +272,9 @@ I must tell you that this Robert the younger died and was buried
 in a churchyard, but he had the habit of leaving his grave by night 
 
 
-1 This does not seem logically to follow 
-upon the prohibition to tell the ghost’s 
-name. I take it as advice to the tailor 
-to change his abode. — M.R.J.
+1. This does not seem logically to follow upon the prohibition to tell the ghost’s name. I take it as advice to the tailor to change his abode. — M.R.J.
 
-2 I do not quite understand how this 
-fire business worked; the Danish cases 
-cited are not quite explanatory. Presumably the spirit, whom he had helped, 
-meant that the tailor need not look at the 
-fire as a precaution when he went home, 
-now that all was well, and that all he 
-need do was to keep his thoughts under 
-control. The force of “for this night 
-at least” seems to be that it would be 
-well to look at the fire another night; the 
-bullock was still about, and might be met 
-again. — A.H.T.
+2. I do not quite understand how this fire business worked; the Danish cases cited are not quite explanatory. Presumably the spirit, whom he had helped, meant that the tailor need not look at the fire as a precaution when he went home, now that all was well, and that all he need do was to keep his thoughts under control. The force of “for this night at least” seems to be that it would be well to look at the fire another night; the bullock was still about, and might be met again. — A.H.T.
 
 and disturbing and frightening the villagers, and the dogs of the 
 village used to follow him and bark loudly. Then some young men 
@@ -426,15 +319,9 @@ elders so have I written. May the Almighty have mercy upon
 him if indeed he were of the number of those destined to salvation. 
 
 
-1 A picturesque touch! These ghosts 
-do not twitter and squeak like those of 
-Homer. — M.R.J.
+1. A picturesque touch! These ghosts do not twitter and squeak like those of Homer. — M.R.J.
 
-2 When Wayneman was throwing the 
-coffin into Gormire the oxen which drew 
-his cart almost sank in the tarn from 
-fear. This, I suppose, is the sense of 
-this rather obscure sentence. — M.R.J.
+2. When Wayneman was throwing the coffin into Gormire the oxen which drew his cart almost sank in the tarn from fear. This, I suppose, is the sense of this rather obscure sentence. — M.R.J.
 
 
 ## V. 
@@ -477,16 +364,9 @@ therefore to ask his master for pardon and absolution so that he
 might obtain the suitable remedy. 
 
 
-1 This is most curious. Why did the 
-woman catch the ghost and bring it indoors ? M.R.J. 
+1. This is most curious. Why did the woman catch the ghost and bring it indoors ? M.R.J. 
 
-2 A daylight ghost it seems. The seer 
-and the head ploughman are walking 
-together in the field. Suddenly the 
-ploughman has a panic and runs off, and 
-the other finds himself struggling with a 
-ghost. Probably the Prior had excommunicated the stealer of the spools 
-whoever he might be,” without knowing who he was, as in the case of the jackdaw of Rheims. — M.R.J.
+2. A daylight ghost it seems. The seer and the head ploughman are walking together in the field. Suddenly the ploughman has a panic and runs off, and the other finds himself struggling with a ghost. Probably the Prior had excommunicated the stealer of the spools whoever he might be,” without knowing who he was, as in the case of the jackdaw of Rheims. — M.R.J.
 
 ## VIII. 
 
@@ -521,35 +401,9 @@ fell. When he was conjured he replied, “If you had done so first
 I would not have hurt you but here and there you were 
 frightened and I did it . 2 
 
-1 For three nights William of Bradford 
-had heard the cries. On the fourth he 
-met the ghost. And I suspect he must 
-have been imprudent enough to answer 
-the cries, for there are many tales, 
-Danish and other, of persons who answer 
-the shrieking ghost with impertinent 
-words, and the next moment they hear 
-it close to their ear. Note the touch of 
-the frightened dog. — M.R.J.
+1. For three nights William of Bradford had heard the cries. On the fourth he met the ghost. And I suspect he must have been imprudent enough to answer the cries, for there are many tales, Danish and other, of persons who answer the shrieking ghost with impertinent words, and the next moment they hear it close to their ear. Note the touch of the frightened dog. — M.R.J.
 
-2 The ghost throws him over the hedge 
-and catches him as he falls on the other 
-side. So the Troll whose (supposed) 
-daughter married the blacksmith, when 
-he heard that all the villagers shunned 
-her, came to the church on Sunday before 
-service, when all the people were in the 
-churchyard, and drove them into a compact group. Then he said to his daughter, “Will you throw or catch?” “I 
-will catch,” said she, in kindness to the 
-people. “Very well, go round to the 
-other side of the church.” And he took 
-them one by one and threw them over 
-the church, and she caught them and 
-put them down unhurt. ‘‘Next time I 
-come,” said the Troll, “ she shall throw 
-and I will catch — if you don’t treat her 
-better.” Not very relevant, but less 
-known than it should be. - M.R.J.
+2. The ghost throws him over the hedge and catches him as he falls on the other side. So the Troll whose (supposed) daughter married the blacksmith, when he heard that all the villagers shunned her, came to the church on Sunday before service, when all the people were in the churchyard, and drove them into a compact group. Then he said to his daughter, “Will you throw or catch?” “I will catch,” said she, in kindness to the people. “Very well, go round to the other side of the church.” And he took them one by one and threw them over the church, and she caught them and put them down unhurt. ‘‘Next time I come,” said the Troll, “ she shall throw and I will catch — if you don’t treat her better.” Not very relevant, but less known than it should be. - M.R.J.
 
 
 ## X. How a penitent thief, after confession, vanished from the eyes of the demon. 
@@ -592,10 +446,8 @@ It has been handed down to memory that a certain man of
 Cleveland, called Richard Rowntree, left his wife great with child 
 
 
-1 The word is Exon. Is it possible that 
-some local name is concealed under it? 
-If it really refers to Exeter it is the only 
-story that does not refer to the district. 
+1. The word is Exon. Is it possible that some local name is concealed under it? If it really refers to Exeter it is the only story that does not refer to the district.
+
 
 and went with many others to the tomb of Saint James. And one 
 night they passed the night in a wood near to the King's highway. 
@@ -627,23 +479,11 @@ the godfather of the abortive child. But I believe that this divorce
 was highly displeasing to God . 3 
 
 
-1 There are multitudinous examples of 
-the nightly processions of the dead, but 
-I do not know another case in which they 
-ride on their own “mortuaries” (the 
-beasts offered to the church or claimed by 
-it at their decease); it is a curious reminiscence of the pagan fashion of providing 
-means of transport for the dead by burying beasts with them. — m.r.j. 
+1. There are multitudinous examples of the nightly processions of the dead, but I do not know another case in which they ride on their own “mortuaries” (the beasts offered to the church or claimed by it at their decease); it is a curious reminiscence of the pagan fashion of providing means of transport for the dead by burying beasts with them. — M.R.J.
 
-2 See notes upon this story at the end 
-of the article. 
+2. See notes upon this story at the end of the article. 
 
-3 Evidently the wife was not accessory 
-to the indecent burial of the child, and 
-the sympathy of the writer is with her. 
-The divorce does seem superfluous, since 
-though sponsors were not allowed to marry, here is but one sponsor; but I know 
-not the canon law. — m.r.j. 
+3. Evidently the wife was not accessory to the indecent burial of the child, and the sympathy of the writer is with her. The divorce does seem superfluous, since though sponsors were not allowed to marry, here is but one sponsor; but I know not the canon law. — M.R.J.
 
 
 I cannot conceive what the grounds of 
