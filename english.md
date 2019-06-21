@@ -64,9 +64,7 @@ back. And while he was walking on the road he saw as it were a
 horse standing on its hind feet and holding up its fore feet. In 
 alarm he forbade the horse in the name of Jesus Christ to do him 
 any harm. Upon this it went with him in the shape of a horse, and 
-in a little while appeared to him in the likeness of a revolving hay- 
-cock 1 with a light in the middle; to which the man said, “God for- 
-bid that you bring evil upon me.” At these words it appeared 
+in a little while appeared to him in the likeness of a revolving haycock 1 with a light in the middle; to which the man said, “God forbid that you bring evil upon me.” At these words it appeared 
 in the shape of a man and the traveller conjured him. Then the 
 spirit told him his name and the reason (of his walking) and the 
 remedy, and he added, “Permit me to carry your beans and to help 
@@ -206,7 +204,7 @@ before the tailor’s return. — M.R.J.
 
 
 absolution of this man . 1 And the tailor asked of him, “Sir, you 
-know the mutual token that I hinted in your ear.” And he answered, . Yes, my son.” Then after many negotiations the tailor 
+know the mutual token that I hinted in your ear.” And he answered, Yes, my son.” Then after many negotiations the tailor 
 made satisfaction and paid live shillings and received the absolution 
 written on a piece of parchment, and he was sworn not to defame the 
 dead man but to bury the absolution in his grave near his head, 
@@ -413,7 +411,7 @@ that he had been assisting and consenting to the murder of a certain
 man, and that he had done other evil things of which I must not 
 speak in detail at present. 
 
-IV. 
+## IV. 
 
 Moreover the old men tell us that a certain man called James 
 Tankerlay, formerly Rector of Kirby, was buried in front of the 
@@ -713,13 +711,12 @@ beck is too general to afford any clue to its identity.
 II. The scene is on the way from Gilling to Ampleforth, and 
 the beck must therefore be the Holbeck, which is crossed by the 
 present road from Gilling to Oswaldkirk, just north of Gilling railway 
-station. The other places named are “ Hoggebek ” and “ Biland- 
-banke,” which the hero of the story suggests as places of retirement 
+station. The other places named are “Hoggebek” and “Bilandbanke,” which the hero of the story suggests as places of retirement 
 for the ghost until his errand is accomplished. The nearest stream 
-which can be identified with “ Hoggebek ” is the Hodge Beck, some 
+which can be identified with “Hoggebek” is the Hodge Beck, some 
 seven or eight miles to the north-east, which runs through the ravine 
 below Kirkdale church and joins the Dove, a tributary of the Rye, 
-three miles south of Kirkby Moorside. “ Bilandbanke ” may be 
+three miles south of Kirkby Moorside. “Bilandbanke” may be 
 the steep hill slope above Byland Abbey, but it may refer equally 
 to the side of the Rye valley below Old Byland. In the second case, 
 the ghost would have to go about the same distance as to the Hodge 
@@ -783,68 +780,10 @@ but the name occurs in Lund House and Lund Forest, in the parishes
 of Lastingham and Kirkby Misperton respectively. Heslarton is, 
 of course, Heslerton, E.R., between Malton and Scarborough.
 
-Notes upon No. XI.
+## Notes upon No. XI.
 
-1.
-The Latin word translated ‘stocking' in the text of this 
-story is caliga. As this word is still occasionally rendered, when 
-found in medieval documents, in its classical sense of 'boot' it 
-may be noted here that in post-classical times it was specially 
-applied to cloth hose, the habitual form of medieval stocking.
-Among the garments enumerated in the Rule of St. Benedict, cap. lv, 
-as sufficient for the monk are *indumenta pedum : pedules et caligas*, 
-i.e. sandals and hose. As Dom Delatte remarks in his Commentary upon the Rule (trans. McCann, p. 348), the actual meaning of 
-this passage perplexed the commentators of the seventeenth and 
-eighteenth centuries; and he himself appears inclined to transpose 
-the meaning of the two words. Ducange, s.v. *Caliga*, gives abundant references, but no positive definition. A passage, however, 
-in the *Constitutiones Lanfranci* (ap. Wilkins, *Concilia*, i, 359), dealing 
-with the laying out of bodies of dead monks, is quite explicit: 
-*calcietur caligis supradicto panno factis, usque ad genua attingentibus, 
-et nocturnalibus*. Here the *nocturnales* are the monk’s shoes for 
-night wear, while the *caligae* are cloth hose reaching to the knees. 
-Cf. in this context the direction in *Liber Eveshamensis* (Henry 
-Bradshaw Soc., vi, col. 124): *Camerarius debet habere preparatos 
-nocturnales et staminiam quam antea non habebat indutam et caligas*. 
-These texts are noted by Dr. J. T. Fowler in the glossary appended 
-to Durham Account Rolls (Surtees Soc., ciii, p. 899), where he defines 
-*Caligae* as ‘socks, or stockings of some kind, sometimes perhaps 
-soled.’ That their material was cloth is clearly shown by several 
-references in the rolls, e.g. ibid., c, p. 518: *in ...... panno empt. 
-pro caligis inde faciend.*; p. 553: *in garniamento T. fatui cum 14 
-ulnis pro caligis tondendis* ; and especially p. 536: *in 15 uln. panni 
-diversi coloris emp. in nundinis Dunelm. pro caligis inde jaciendis*.
-Dr. G. G. Goulton notes (Social Life in England, p. 78) the common 
-misapprehension of the meaning of *caliga*, and refers to passages 
-in Thorold Rogers’ History of Agriculture and Prices in England in 
-confirmation of the true meaning. Further, Promptorium Parvulorum (Camden Soc., i, 248, with a long note, and E.E.T.S., 
-col. 227) has ‘Hose. Caliga’: see also *Catholicon Anglicum* 
-(E.E.T.S., p. 189): ‘Hose. *Caliga, caligula,*’ followed by the verse 
-*Sunt ocrie, calige quos tebia portat amictus*. Here *ocreae* are high 
-boots worn over the cloth hose; cf. Prompt. Paw. ut sup., i, 45: 
-‘Bote for a mannys legge. Bota. Ocrea’; and col. 44: ‘Boote 
-for the legg. Bota ocrea.’ Such boots were made of 
-leather; see *Durham Account Rolls* ut sup., ciii, p. 587: *1 pare 
-botarum de Cordwan pro d’no priore*. With regard to the wearing 
-of boots (*ocreae*) by canons regular see the indult (*Cal. Papal Letters*, 
-vi, 158), by which the canons of Worksop were permitted to wear 
-shoes (sotularia) instead of boots; see also *Visitations in the Diocese 
-of Lincoln* (Lincoln Record Soc.), i, 32, note, and ii, 165, 168, for 
-their obligation to wear boots. Dr. M. R. James quotes Blackman's 
-account of Henry VI’s dress: he wore *caligas, ocreas, calceos omnino 
-pulli coloris*, which hose, boots, and shoes appear to be distinguished. Although, as Dr. James remarks, the writer of these 
-stories cannot be supposed to have drawn very line distinctions 
-between *ocrea* and *caliga*, yet the distinction is well supported, and 
-it is more reasonable to suppose that the child’s body was wrapped 
-in a cloth stocking than stuffed into a high leather boot. — A.H.T. 
+1. The Latin word translated ‘stocking' in the text of this story is caliga. As this word is still occasionally rendered, when found in medieval documents, in its classical sense of 'boot' it may be noted here that in post-classical times it was specially applied to cloth hose, the habitual form of medieval stocking. Among the garments enumerated in the Rule of St. Benedict, cap. lv, as sufficient for the monk are *indumenta pedum : pedules et caligas*, i.e. sandals and hose. As Dom Delatte remarks in his Commentary upon the Rule (trans. McCann, p. 348), the actual meaning of this passage perplexed the commentators of the seventeenth and eighteenth centuries; and he himself appears inclined to transpose the meaning of the two words. Ducange, s.v. *Caliga*, gives abundant references, but no positive definition. A passage, however, in the *Constitutiones Lanfranci* (ap. Wilkins, *Concilia*, i, 359), dealing with the laying out of bodies of dead monks, is quite explicit: *calcietur caligis supradicto panno factis, usque ad genua attingentibus, et nocturnalibus*. Here the *nocturnales* are the monk’s shoes for night wear, while the *caligae* are cloth hose reaching to the knees. Cf. in this context the direction in *Liber Eveshamensis* (Henry Bradshaw Soc., vi, col. 124): *Camerarius debet habere preparatos nocturnales et staminiam quam antea non habebat indutam et caligas*. These texts are noted by Dr. J. T. Fowler in the glossary appended to Durham Account Rolls (Surtees Soc., ciii, p. 899), where he defines *Caligae* as ‘socks, or stockings of some kind, sometimes perhaps soled.’ That their material was cloth is clearly shown by several references in the rolls, e.g. ibid., c, p. 518: *in ...... panno empt. pro caligis inde faciend.*; p. 553: *in garniamento T. fatui cum 14 ulnis pro caligis tondendis* ; and especially p. 536: *in 15 uln. panni diversi coloris emp. in nundinis Dunelm. pro caligis inde jaciendis*. Dr. G. G. Goulton notes (Social Life in England, p. 78) the common misapprehension of the meaning of *caliga*, and refers to passages in Thorold Rogers’ History of Agriculture and Prices in England in confirmation of the true meaning. Further, Promptorium Parvulorum (Camden Soc., i, 248, with a long note, and E.E.T.S., col. 227) has ‘Hose. Caliga’: see also *Catholicon Anglicum* (E.E.T.S., p. 189): ‘Hose. *Caliga, caligula,*’ followed by the verse *Sunt ocrie, calige quos tebia portat amictus*. Here *ocreae* are high boots worn over the cloth hose; cf. Prompt. Paw. ut sup., i, 45: ‘Bote for a mannys legge. Bota. Ocrea’; and col. 44: ‘Boote for the legg. Bota ocrea.’ Such boots were made of leather; see *Durham Account Rolls* ut sup., ciii, p. 587: *1 pare botarum de Cordwan pro d’no priore*. With regard to the wearing of boots (*ocreae*) by canons regular see the indult (*Cal. Papal Letters*, vi, 158), by which the canons of Worksop were permitted to wear shoes (sotularia) instead of boots; see also *Visitations in the Diocese of Lincoln* (Lincoln Record Soc.), i, 32, note, and ii, 165, 168, for their obligation to wear boots. Dr. M. R. James quotes Blackman's account of Henry VI’s dress: he wore *caligas, ocreas, calceos omnino pulli coloris*, which hose, boots, and shoes appear to be distinguished. Although, as Dr. James remarks, the writer of these stories cannot be supposed to have drawn very line distinctions between *ocrea* and *caliga*, yet the distinction is well supported, and it is more reasonable to suppose that the child’s body was wrapped in a cloth stocking than stuffed into a high leather boot. — A.H.T.
 
-2.
-The occurrence of the name Rowntree in this story has been 
-communicated to Mr. Arthur Rowntree, of York, in view of a possible 
-connection between his family and the neighbourhood of the story. 
-He answers that his pedigree can be traced back to a certain William 
-Rowntree, of Riseborough, near Pickering, born in 1728, and that 
-the family may have come from Stokesley, where there are some 
-six or seven hundred Rowntree names in the parish register. Rowntree wills occur in the Probate Registry at York in 1543, 1553, and 
-1558; but there appears to be no record of any association with 
-this particular district. 
+2. The occurrence of the name Rowntree in this story has been communicated to Mr. Arthur Rowntree, of York, in view of a possible connection between his family and the neighbourhood of the story. He answers that his pedigree can be traced back to a certain William Rowntree, of Riseborough, near Pickering, born in 1728, and that the family may have come from Stokesley, where there are some six or seven hundred Rowntree names in the parish register. Rowntree wills occur in the Probate Registry at York in 1543, 1553, and 1558; but there appears to be no record of any association with this particular district.
+
 

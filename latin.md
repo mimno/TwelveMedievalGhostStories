@@ -1,5 +1,5 @@
 ## Twelve Medieval Ghost-stories
-[^2]
+
 THESE stories were I believe first noticed in the recent Catalogue
 of the Royal Manuscripts, where a brief analysis of them is given
 which may well have excited the curiosity of others besides
@@ -315,8 +315,7 @@ habet spiritum phitonis', but on the way he repents and lashes
 himself, whereby the spirit loses his memory. Caesarius of
 Heisterbach has many such tales.
 
-## X. Quomodo latro penitens post confessionem euanuit ab oculis
-demonis.
+## X. Quomodo latro penitens post confessionem euanuit ab oculis demonis.
 
 Contigit olim in Exon. quod quidam fossor magnus laborator et comestor mansit in quadam cellula spaciose domus que habebat plures cellulas
 cum minis intermixtis et ubi \[u : *perhaps* non nisi ?\] vnum domicilium.
