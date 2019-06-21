@@ -225,7 +225,7 @@ Iterum tradunt veteres quod quidam nomine Iacobus Tankerlay
 quondam Rector de Kereby sepeliebatur coram capitulo Bellelande et
 solebat egredi in noctibus vsque kereby et quadam nocte exsufflauit
 oculum concubine sue ibidem et dicitur quod abbas et conuentus fecerunt
-corpus eius effodi de tumulo cum cista sua et coegerunt Rogerum Wayneman cariare ilium vsque ad Gormyr\[e\] et dum iactaret predictam cistam
+corpus eius effodi de tumulo cum cista sua et coegerunt Rogerum Wayneman cariare illum vsque ad Gormyr\[e\] et dum iactaret predictam cistam
 in aquam fer\[e\] pre timore boues demergerentur. Absit quod ego taliter
 scribens sim in aliquo periculo, quia sicut audiui a senioribus ita scripsi.
 Misereatur ei omnipotens, si tamen fuerit de numero saluandorum.[^4]
