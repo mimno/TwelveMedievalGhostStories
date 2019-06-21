@@ -1,5 +1,9 @@
 # TwelveMedievalGhostStories
 
+[Latin Text](/latin.md)
+
+[English Translation](/english.md)
+
 Stories transcribed by M.R. James from a manuscript from Byland Abbey.
 This collection is a wonderful perspective on James' own ghost stories, along with his edition of Walter Map's "Courtly Trifles".
 If you haven't read anything by James, "Casting the Runes" will give you an entirely new perspective on blind peer review.
